@@ -22,5 +22,7 @@ Being quarentined takes away part of my will for learning new technologies, spec
 ### Contact info:
 
 E-mail: luizf9844@gmail.com --- this is the easiest way to get in touch with me
+
 Linkedin profile: https://www.linkedin.com/in/luiz-fernando-bandieira-a5a111197/ --- I desperately need to update this thing
+
 Discord: Bandieira#3405
